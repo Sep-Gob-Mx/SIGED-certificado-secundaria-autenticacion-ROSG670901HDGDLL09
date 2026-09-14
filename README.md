@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-ROSG670901HDGDLL09
+ROSG670901HDGDLL09
